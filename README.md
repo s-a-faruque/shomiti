@@ -1,0 +1,2 @@
+# shomiti
+Co-operative society
